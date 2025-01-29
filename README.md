@@ -1,0 +1,1 @@
+# RID-187669-Blog-Responsivo
